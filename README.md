@@ -63,7 +63,7 @@ In most circumstances, you understand that something is interfering with your en
 
 An assessment of sexual attitudes, as well as other potential contributing factors such as fear, anxiety, past sexual trauma/abuse, relationship concerns, medications, alcohol or drug abuse, and so on, assists a clinician in understanding the underlying cause of the problem and recommending the best treatment.<br>
 
-<a href"https://tooshytoask.org/educate/sex-and-sexuality/sexual-dysfunction/">Sexual Dysfunction Treatment</a><br>
+<a hrref=""https://tooshytoask.org/educate/sex-and-sexuality/sexual-dysfunction/">Sexual Dysfunction Treatment</a><br>
 Remember that sexual dysfunction is just an issue if it concerns you. There is no need for therapy if it does not annoy you.<br>
 
 Because there are so many different symptoms and causes of female sexual dysfunction, therapy differs. You must express your worries and understand your body and its typical sexual reaction. Your sex life objectives are also vital for selecting a treatment and determining whether or not it is working for you.<br>
